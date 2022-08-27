@@ -1,2 +1,3 @@
 - 👋 Hi, I’m @Kushagra-RavaL
+- 🏃 Learning BlockChain technology.
 - 📫 How to reach me https://www.linkedin.com/in/kushagra-raval-a008ba200/
